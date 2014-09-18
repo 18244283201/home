@@ -1,2 +1,3 @@
  i love you!
-i like you!
+ i hate you
+ i want you
